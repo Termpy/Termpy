@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Termpy
+- 👀 I’m interested in programing, and flashing.
+- 🌱 I’m currently learning firmware.
+- 💞️ I’m looking to collaborate on my friends.
+- 📫 How to reach me: Telegram: @NotAFastBoot, Discord: thefastboot000.
+- 😄 Pronouns: he/his
+- ⚡ Fun fact: None.
